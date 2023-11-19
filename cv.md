@@ -4,7 +4,7 @@
 
 ### Contact Information
 
-Telegram: @eva_eng
+[Telegram](https://t.me/eva_eng)
 
 ___
 
